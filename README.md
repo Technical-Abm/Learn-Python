@@ -1,2 +1,2 @@
 # Learn-Python
-Learn Python | Basic Level | Basic Python For Beginners 2022
+Learn Python | Basic Level | Basic Python Course For Beginners 2022
